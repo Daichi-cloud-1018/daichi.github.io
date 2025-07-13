@@ -1,1 +1,0 @@
-# daichi.github.io
